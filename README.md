@@ -1,3 +1,5 @@
+name(s):my name is mike - any nickname for michael/mike (except mikey, michelle or michaela) is fine^^
+
 facts: i'm autistic and easily overwhelmed so please refrain from asking too many questions at once
 
 my hyperfixations: fnaf(mostly) and sally face‼️‼️ i could yap abt them all day
@@ -11,8 +13,6 @@ read byi: please don't be scared to ask for inspo i'm more than happy to oblige^
 more facts: i'm a transmale though i go by any pronouns (all but she) + my preferred ones are he/him - they/them is fine if you don't know me
 
 interests: astrology, music, indie horror games(i'm open to suggestions), animals, art
-
-name(s):my name is mike - any nickname for michael/mike (except mikey, michelle or michaela) is fine^^
 
 boundaries: misgendering me is overstepping a boundary(again, he/any but she/her) + any type of body jokes or name jokes from strangers makes me uncomfortable, so please refrain from doing these
 
