@@ -12,7 +12,7 @@ read byi: please don't be scared to ask for inspo i'm more than happy to oblige^
 
 more facts: i'm a transmale though i go by any pronouns (all but she) + my preferred ones are he/him - they/them is fine if you don't know me
 
-interests: astrology, music, indie horror games(i'm open to suggestions), animals, art
+interests: astronomy, music, indie horror games(i'm open to suggestions), animals, art
 
 boundaries: misgendering me is overstepping a boundary(again, he/any but she/her) + any type of body jokes or name jokes from strangers makes me uncomfortable, so please refrain from doing these
 
