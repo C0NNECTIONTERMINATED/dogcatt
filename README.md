@@ -6,4 +6,4 @@ i like indie horror stuff, i'm open to game/show/movie suggestions
 
 selective mutism, anxiety and autism + possibly ADD but i haven't been diagnosed yet
 
-idk if not being in the fandom means i cant make the skins of the show/game/movie but i honestly dont gaf so
+idk if not being in the fandom means i cant make cosplays of the show/game/movie but i honestly dont gaf so
