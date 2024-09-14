@@ -4,4 +4,4 @@ doing this because i'm too lazy to make a rentry or carrd🤷
 
 i like indie horror stuff, i'm open to game/show/movie suggestions
 
-selective mutism, anxiety and autism(please help me) possibly add but i haven't been diagnosed yet
+selective mutism, anxiety and autism + possibly ADD but i haven't been diagnosed yet
